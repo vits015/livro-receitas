@@ -14,4 +14,4 @@
 
 ### Modo de Preparo
 
-1. Em uma panela a fogo médio faça a poha toda
+1. Em uma panela a fogo médio faça 
